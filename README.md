@@ -29,7 +29,4 @@ Together, we can make a difference. Together, we can empower patients and enhanc
 ### Watch Our Introduction Video:
 https://www.youtube.com/watch?v=la3WncAyEsI
 
-### Get in Touch:
-Have questions or feedback? We'd love to hear from you! Reach out to us at [karthikreddykotla1729@gmail.com](mailto:karthikreddykotla1729@gmail.com) or [ishampatel01@gmail.com](mailto:ishampatel01@gmail.com) and let's work together to revolutionize cancer care.
-
 Thank you for joining us on this journey. Together, we can make a difference.
